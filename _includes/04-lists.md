@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+1. I
+2. don't
+3. know
+4. what
+5. to
+6. put
